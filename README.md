@@ -1,2 +1,2 @@
-# divyaKampalli.github.io
+# Divya Kampalli
 Portfolio
